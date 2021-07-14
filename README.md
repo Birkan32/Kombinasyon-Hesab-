@@ -1,0 +1,2 @@
+# Kombinasyon-Hesab-
+Patika Ödevi
